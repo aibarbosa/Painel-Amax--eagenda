@@ -1,1 +1,0 @@
-# Painel-Amax--eagenda
